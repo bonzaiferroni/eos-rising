@@ -12,7 +12,7 @@ As psychology doctoral students, we were advised never to talk about our own men
 
 ^Marsha Linehan has a valuable perspective on this kind of advice in Building a Life Worth Living.
 
-People are sometimes compared to sheep. I always liked sheep, that didn't seem fair. At our worst, we are more like the huge herds of wildebeasts being circled by lions that you sometimes see in nature documentaries. We desperately try to hide, but that just means someone else will have nobody between them and the lion. This is what I thought of when I got that advice from faculty.
+People are sometimes compared to sheep. I always liked sheep, that didn't seem fair. At our worst, we are more like the huge herds of wildebeasts being circled by lions that you sometimes see in nature documentaries. We desperately try to hide, but that just means someone else will have nobody between them and the lion. This is what I thought of when I got that advice from faculty. 
 
 But I don't believe that is our true spirit, either. 
 
