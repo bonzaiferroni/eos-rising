@@ -16,7 +16,7 @@ I experienced sexual trauma at a young age, and I had no way of understanding it
 
 --
 
-As I write about this, I wish to focus on telling my experience and to avoid offering judgment. Sometimes it is hard to hold back. As an adult, I have a very different set of beliefs. Everyone in my family is still in my life, and I love them dearly. In most things, we have not let our differences in belief come between us. At times, they have shown extraordinary love and acceptance. 
+As I write about this, I wish to focus on telling my experience and to avoid offering judgment. Sometimes it is hard to hold back. As an adult, I have a very different set of beliefs. Everyone in my family is still in my life, and I love them dearly. In most things, we have not let our differences in belief come between us.
 
 Part of my motivation to tell this story is that I wish for us to come to terms with the past. I don't believe it captures the whole truth to tell this story like it was a happy one, and yet that is the only version I have heard. I have not felt free to talk about all the things that happened. I do not want to hurt people I love. I doubt myself at times, like maybe I am making too big of a deal. I have unresolved pain, I believe we all do. But I also believe we can't heal pain that we can't acknowledge even to ourselves.
 
