@@ -19,3 +19,5 @@ But I don't believe that is our true spirit, either.
 If there was just one idea I wish that I could beam into the hearts and minds of America it is that you don't need to hide your struggles. That you don't deserve to suffer alone. We must lead with the example we would like to see.
 
 The next part of the episode also felt very relevant to my life. It was about a man that struggled to control his rage and the impact it had on his family and his life. I have faced the rage of others my whole life. I have seen how it echos through generations. I have seen how it isolates and destroys the one who can't control their anger. I promised myself not to carry that pain onward. But sometimes it knocks on the door. We don't get to choose after inviting it in.
+
+But holding that anger under water is not the answer. There must be a place to put it. There is no where else for me to put it, so I will scatter it here like embers I wish to fade. 
