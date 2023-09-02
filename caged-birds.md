@@ -52,7 +52,7 @@ It is my hope that if my family reads this, they will find validation and self-c
 
 They must provide a good learning environment. A good learning environment must provide safety. We should not seek to be safe all the time, but we should at least feel safe some of the time. The brain struggles to learn and consolidate new information under conditions of constant stress and fear. 
 
-I believe all kids should be guaranteed access to a school counselor that *isn't* their parent. At a minimum, they have the right to know about the opportunity and an easy way to access it that is independent of their parents. We recognize the importance of school counselors and it would bother us to hear that kids in school are unable to talk to one. They are just as important, maybe more, for home schoolers. They need to be able to tell someone if something is wrong in their home. Someone like this could have changed my life.
+I believe all kids should be guaranteed access to a school counselor that *isn't* their parent. At a minimum, they have the right to know about the opportunity and an easy way to access it that is independent of their parents. We recognize the importance of school counselors and it would worry us to hear that kids in school are unable to talk to one. They are just as important, maybe more, for home schoolers. They need to be able to tell someone if something is wrong in their home. Someone like this could have changed my life.
 
 --
 
