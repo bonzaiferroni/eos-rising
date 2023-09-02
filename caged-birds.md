@@ -60,7 +60,7 @@ The other part was just plain impulsiveness and orneriness, and it is possible I
 
 My expulsion from the Christian school was my introduction to public education, starting in the middle of the semester. I found it easy to make friendships, I was even popular in a way. But maintaining those friendships was not easy, and every time a new friend would begin to drift away, I would feel there was something wrong with me. I talked about difficult things with some of my teachers and their kindness changed my life. I struggled socially and academically and at home I still faced the same problems. I eventually dropped out, feeling too stupid to make it. 
 
-On the last day I was there, I decided to just walk the 5 miles to my house rather than go to the next class. I remember seeing a big yellow grasshopper crawling lethargically across the path. In the crisp Autumn air, it did not have the energy to jump away and do grasshopper things. I sat down next to it and thought about its fate and cried.
+On my last day of high school, I decided it would be better to walk the 5 miles home rather than go to the next class. I remember seeing a big yellow grasshopper crawling lethargically across the path. In the crisp Autumn air, it did not have the energy to jump away and do grasshopper things. I sat down next to it and thought about its fate and cried.
 
 I got my GED and struggled through a semester at a community college before dropping out. I dropped out of life for quite some time, battling a deep depression. I told everyone that I had headaches. It wasn't exactly a lie, but it was far from the truth. 
 
