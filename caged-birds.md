@@ -12,7 +12,7 @@ She was also afraid of exposure to a secular view of sexuality. She challenged s
 
 At the same time, I had nothing remotely resembling sex education. She believed that teaching kids about having sex safely was basically the same as encouraging them to have sex before they are married. 
 
-I experienced sexual trauma at a young age, and I had no way of understanding it. I felt that I had no one I could tell and a great deal of shame and confusion. We were taught that sexual purity was of the utmost importance to God and our future happiness. Sexual sin was a stain that would follow us for the rest of our lives. At the time, I didn't even understand what was happening. There was an older boy who made it seem like some kind of game. He was also home schooled. I carried that on my own far too long.
+I experienced sexual trauma at a young age, and I had no way of understanding it. I felt that I had no one I could tell and a great deal of shame and confusion. We were taught that sexual purity was of the utmost importance to God and our future happiness. Sexual sin was a stain that would follow us for the rest of our lives. At the time, I didn't even understand what was happening. There was a boy who was several years older who made it seem like some kind of game. He was also home schooled. I carried that on my own far too long.
 
 --
 
@@ -52,7 +52,7 @@ It is my hope that if my family reads this, they will find validation and self-c
 
 They must provide a good learning environment. A good learning environment must provide safety. We should not seek to be safe all the time, but we should at least feel safe some of the time. The brain struggles to learn and consolidate new information under conditions of constant stress and fear. 
 
-I believe all kids should be guaranteed access to a school counselor that *isn't* their parent.
+I believe all kids should be guaranteed access to a school counselor that *isn't* their parent. At a minimum, they have the right to know about the opportunity and an easy way to access it that is independent of their parents.
 
 --
 
