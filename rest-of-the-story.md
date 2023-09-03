@@ -8,7 +8,7 @@ Every year my parents send out a Christmas letter to all their friends where the
 
 I am an adult now, and I have always been careful about which parts I share too. It is not just my story, and sharing it could hurt people I care deeply for, who I wish only happiness and healing. Staying silent has deep consequences too, that is a recurring theme in our story. And so we must think and reflect on what we should share and find that balance that might never satisfy anyone else that thinks they could possibly know. I believe that anyone heals only when everyone heals, we are connected beyond our ability to truly sever. This is a lesson we must learn as a species and as communities and as families and as individuals. Each part matters, each part needs love.
 
-As psychology doctoral students, we were advised never to talk about our own mental health struggles. This advice always seemed terrible and I have never followed it. It seemed like the ultimate act of cowardice, we understand the damage caused by the stigma over mental health and yet we are leading the charge when that is the advice we give and the example we show. 
+As doctoral students in a clinical psychology program, we were advised never to talk about our own mental health struggles. This advice always seemed terrible and I have never followed it. It seemed like the ultimate act of cowardice, we understand the damage caused by the stigma over mental health and yet we are leading the charge when that is the advice we give and the example we show. 
 
 ^Marsha Linehan has a valuable perspective on this kind of advice in Building a Life Worth Living.
 
