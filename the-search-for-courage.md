@@ -38,4 +38,4 @@ Maybe that voice is one that you can identify. Sometimes during practice, we wou
 
 I know some people understand this. It is a gift they are willing to give even some stranger they pass on Pearl Street. I am so grateful for you. 
 
-I am back to writing computer code. Coding is a refuge, all the problems at least make sense. Real life needs breakpoints and unit testing. 
+For now, I am back to writing computer code. Coding is a refuge, all the problems at least make sense. Real life needs breakpoints and unit testing. 
