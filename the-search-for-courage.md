@@ -6,7 +6,7 @@ I started a garden and grew some corn and squash and a couple tomatoes. I took s
 
 It is interesting partly because this comes after several years of living like a hermit. I suppose "as a hermit" is more honest. A long time ago, I dropped out of grad school and I've worked as a freelance web developer in the meantime. Those years were as quiet as the last year has been loud.
 
-Getting out there again, I learned a lot about myself. I always thought of myself as someone with the right amount of courage. I have not tried to be fearless, but I have tried to have the right amount of fear. I have tried to be brave without bravado. I know that at times in my life I have seemed fearless, and at times like I was hiding.
+Getting out there again, I learned a lot about myself. I always thought of myself as someone with the right amount of courage. I have not tried to be fearless, but I have tried to have the right amount of fear. I have tried to be brave without bravado. I know that at times in my life I have seemed fearless, and at times like I was hiding from something that shouldn't be very scary.
 
 I have also faced more than anyone in my life understands. I have faced it alone. I just haven't known how to talk about it, not even to the person I married. I grew up in a lot of darkness.
 
