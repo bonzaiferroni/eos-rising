@@ -38,12 +38,10 @@ I'm not sure now why I thought I was ready to play music out on the street. Mayb
 
 I try not to look away from people who are struggling. We look away because the part of us that holds empathy does not want to hold that discomfort or pain. We live in a culture that encourages us to suffocate strong feelings, to hold it under water until it stops moving. Art and music is a healthy way to let it breathe. We understand that, and we allow it and celebrate emotional creative expression by people who have a lot of talent. We should open our hearts more to hear the beauty in an untrained voice that is daring to sing, to imagine itself differently. 
 
-^Our very survival as a species relies on our ability to imagine ourselves differently. It is a unique human strength, and it is a unique challenge for each human heart. Encouraging that spirit is one of my projects.
+^Our very survival as a species depends on our ability to imagine ourselves differently. It is a unique human strength, and it is a unique challenge for each human heart. Encouraging that spirit is one of my projects.
 
 Empathy can be understood as an emotional simulation that happens automatically in the brain. It is a replay of what someone else seems to be experiencing, except with us in their shoes. This is why we look away, to abort the experiment. Yet in our own lives, we dream about self-expression. Look at all the movies about breaking out of that shell. Those movies tap into a huge undercurrent of experience in our culture. It is discouraging that our impulse isn't to be more supportive. But we have those inner critics, I believe that is what makes us look away. In the simulation we can hear them, and it sounds like they are talking to us. 
 
 Sometimes during practice, we would talk about music and the motivation and struggles that led us here. One woman told us about her older sister, who ridiculed her and emphasized her mistakes. A voice like that can make us lose sight of what is beautiful in us until the flaws are all we can see. That is why encouragement is such a kindness. We can teach others to talk back to those voices that make them unsteady. But first we have to learn how to question the negativity we hold for ourselves. It is difficult to show someone else a kindness that we haven't learned to show ourselves.
 
-I know some people understand this. It is a gift they are willing to give even some stranger they pass on Pearl Street. I am so grateful for you. 
-
-For now, I am back to writing computer code. Coding is a refuge, and all the problems seem to have a solution. Real life needs breakpoints and unit testing. 
+I know some people understand this. It is a gift they are willing to give even some stranger they pass on Pearl Street. It is a special place 
