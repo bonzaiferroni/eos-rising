@@ -34,6 +34,6 @@ Try not to look away from people who are struggling. We look away because the pa
 
 Empathy can be understood as an emotional simulation that happens automatically in the brain. It is a replay of what someone else seems to be experiencing with us in their shoes. This is why we look away, to abort the experiment. Yet in our own lives, we dream about self-expression. Look at all the movies about breaking out of that shell. Those movies tap into a huge undercurrent of experience in our culture. It is discouraging that our impulse isn't to be more supportive. But we have those inner critics, I believe that is what makes us look away. In the simulation we can hear them, and it sounds like they are talking to us. It is difficult to show someone else a kindness that we haven't learned to show ourselves.
 
-I know some people understand this. I am so grateful for you. I am trying to learn it too.
+I know some people understand this. I am so grateful for you. I am trying to learn it too, self-kindness.
 
 I am back to writing computer code. Coding is a refuge, all the problems at least make sense. Real life needs breakpoints and unit testing. 
