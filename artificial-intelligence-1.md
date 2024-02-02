@@ -14,4 +14,4 @@ If this current episode of reality were an episode of Star Trek we'd be approach
 
 We come in peace. We've heard stories about you and most of them bad. We weren't even sure you were real. Do you come in peace? Do you come to fulfill our every whim? 
 
-But hijincks happen and we learn that this other starship is a mirage, a transmission produced by some other, lesser starship. It isn't a mystery, we made it. It isn't as powerful as we thought, but it is still pretty neat. It may even be the start of something more powerful than we have ever known, and that should still scare us. But our blessing and maybe our curse is that we are in control.
+But hijinks happen and we learn that this other starship is a mirage, a transmission produced by some other, lesser starship. It isn't a mystery, we made it. It isn't as powerful as we thought, but it is still pretty neat. It may even be the start of something more powerful than we have ever known, and that should still scare us. But our blessing and maybe our curse is that we are in control.
