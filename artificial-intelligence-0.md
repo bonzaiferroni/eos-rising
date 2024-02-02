@@ -2,7 +2,7 @@
 
 This is a wild time to be alive. The new AI tools have changed the landscape on many levels, and there is excitement and fear. I've been following the discussion on podcasts and articles. I've also been using all the shiny AI tools new on the scene for software developers and forming an impression about what it means for me, personally. I read a news article that cited some very high percentage of software developers who are considering a career change right now. I think I get where they are coming from. 
 
-I've always been deeply invested in the spirit of AI, where did it start? Probably watching Star Trek: The Next Generation as a young person. I have always loved those stories for the beauty of their utopian vision. Science fiction invites us to imagine our future. When it is lovely, it speaks to my spirit. 
+I've always been deeply invested in the spirit of AI, where did it start? Probably watching *Star Trek: The Next Generation* as a young person. I have always loved those stories for the beauty of their utopian vision. Science fiction invites us to imagine our future. When it is lovely, it speaks to my spirit. 
 
 One AI in the stories, they affectionately refer to as "computer". It responds with a cheerful beep and talks with a computery female voice. It functions as the operating system of the starship. Instead of a mouse and keyboard, they just talk to the computer. It is essentially the best user interface that people could imagine in the 1980s. I'm not sure we've imagined anything better since then.
 
