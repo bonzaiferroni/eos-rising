@@ -4,7 +4,7 @@ I'm excited about AI, but I'm not excited about the same things you typically he
 
 A friend's father told me about a news article he read that seemed to prove that all AI will eventually be evil. I don't think that is true, but it is a legitimate question. There are some who think the same thing about human intelligence, but I don't believe that either. 
 
-Unfortunately for me, most science fiction these days aren't of a vision of utopia. "Dystopian thriller" is a genre on Netflix, "Utopian thriller" is not. When given a choice to look at something we find beautiful and something that makes us worried, we all too often choose the second. That is how fear can pull us in, and we must be careful. Our vision of the future has a way of coming true. 
+Unfortunately for me, most science fiction these days aren't of a vision of utopia. "Dystopian thriller" is a genre on Netflix, "Utopian thriller" is not. When given a choice to look at something we find beautiful and something that makes us worried, we all too often choose poorly. That is how fear can pull us in, and we must be careful. Our vision of the future has a way of coming true. 
 
 Rumbling around deep in our collective conscious is another kind of AI story, a darker spirit. We see it in HAL-9000 and Skynet and GladOS. Our subjugation, our destruction by an intelligence that treats life the way we are capable of at our worst. We fear that it may look at us the way we look at ants.
 
