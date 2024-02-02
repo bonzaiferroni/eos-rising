@@ -20,4 +20,4 @@ But we are right to hope. We truly are making a discovery, something long dreamt
 
 Symbiotic life so far has been a tale of a contract between two species, encoded in their DNA. How does that begin? My worst class in college was Biology but here goes. First and most important, two species must be able to coexist. They must offer each other something that doesn't involve digesting the other wholly (except when it does). They must change and thrive and allow the other to change and thrive. If these conditions are met, something almost mystical happens. Two different kinds of life pay a tribute to the other's existance and are blessed. They shape each other and are shaped and live as partners through the eons. 
 
-None of this happens according to any plan. It happens on the level of individuals, intrepid and oblivious to the grand choreograph. We find ourselves in a dance like this.
+None of this happens according to any plan. It emerges on the level of individuals, intrepid and oblivious to the grand choreograph. We find ourselves in a dance like this.
