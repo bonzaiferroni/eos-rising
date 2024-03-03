@@ -1,0 +1,37 @@
+It is getting cold, time to tell this story while I still can. I have been keeping something to myself my whole life, and not just for my own sake. I haven't wanted to think about it, but recently I've begun to see my life in a perspective that doesn't leave it out. It makes me sad but it helps me understand myself better, and I think other people should have the chance too.
+
+When I was very young, I had a best friend who lived two doors down the street. We played almost every day, and I think that made a big difference for me because I was homeschooled. One funny thing is that he had a house just like mine, all the rooms were in the same place, same doors, same fixtures. 
+
+I remember he had an orange cat that would sometimes get lost but we would find it stuck inside the drain sewer outside their home. One time I climbed in there too to see what it was like, and I remember thinking it was a lot better than I imagined looking at it from the outside.
+
+One day we were in his basement and there were these huge fluffy pink things, almost like a mattress. They were big and soft and we had the idea that we could jump off something high on to them and not get hurt. I remember they were so soft to touch, and I also remember getting very itchy a short time later and getting in trouble.
+
+My mom likes to tell this one story because she thinks it is cute. She tells about how one day, my friend's father called her up, or showed up at her door (I'm not sure). He said he found me and his son, we were sitting stark naked on the large rock at the end of our street, next to the main road. She laughs when she tells this story of brazen youthful innocence. I have asked her not to tell it anymore, but she often forgets when I ask her things like that.
+
+I don't remember that time, but I remember something like that happening. Only, we weren't outside, we were hiding in my friend's closet. Funny enough, it is a closet just like the one in my older brother's room, same house and all. I remember one day his dad opened the door to the closet and found us in there naked. I remember the shock and disgust on his face and not understanding why. I remember not being able to see my friend very often after that and wondering why he didn't like me anymore. 
+
+I remember sometime before that, an older boy showed us how to do the thing we were doing in the closet. He was just a boy too, about 5 years older than us. We were maybe in first or second grade. He told us it was something grown-ups do, I don't think he understood either. He thought it was like a game, and so did we. 
+
+I don't know if I told my mom what happened. I remember feeling very shameful. I don't think I did tell her, otherwise she probably wouldn't tell the story about the rock.
+
+We were a devout Christian household. We couldn't watch TV very often, but sometimes when we did a sex scene would come on and my mom would be outraged and disgusted. Sometimes we had to turn it off and she would tell us about how sex is only ok when it is between a husband and wife. She told us about all the sin these people on the TV were letting into their lives. I remember dreading the possiblity of a sex scene happening in whatever we were watching, she always made it terrible.
+
+Sometime later, I went to highschool. It was the first year I went to school that wasn't at home. I met a girl, she was beautiful. She had a class where the class project was to get pretend-married, right there in front of the class, and she asked if I would be her pretend groom. I wore nice clothes to school that day and we said our vows, I remember they included the phrase "forever and a day."
+
+Fast forward days or weeks and we were in my basement, and were naked. I remember she told me I have a man's body and I didn't understand what she meant. We didn't have sex, but we explored much further than I had ever gone before. I remember that it was beautiful and sweet, and afterward I felt the most intense guilt I had ever felt. I thought maybe I had ruined my chance of ever finding love. I wrote messages to myself to never do it again, while she was still on my bed, and it made her ashamed too. 
+
+Years later, when I thought back to how she must have felt, I was ashamed again for very different reasons. We talked and she told me how terrible it was, and told her I was deeply sorry.
+
+Fast forward more, I am living in another basement. I wrote a letter to the older boy, now a man, who showed us the grown-up stuff when we were too young. I wanted to make sense of it and put it behind me. I told him that I forgive him, thinking that he must carry guilt. I wanted him to know it was safe to talk about and process together, if he wanted to. He wrote back, indignant that I thought there was anything he needed forgiveness for. He told me that he was too young to understand and so he couldn't have done anything wrong. I believe he was too young to understand, but he was quite a bit older than me. 
+
+My mom has always been a fierce opponent to sex education. She doesn't understand what a difference healthy sex education would have made for her own kids.
+
+Again, we go forward. I am in the spare bedroom of my own home with the woman I would later marry. She knows I have been saving myself for someone very special. We were deeply in love, and it seemed right. She wanted to be my first. We went to bed the night before rather drunk. She wanted me to remember, so we waited a little longer, until the morning sun shined in our window through the cottonwood leaves outside.
+
+She was my friend and my love and I have never felt safer than I did in her arms. But there has always been a part of me that couldn't love myself and I suppose it is difficult to be in love with someone like that. I believe it made her feel like there was something wrong with her too, and eventually she needed to leave. But she was wonderful, and I miss her. Longer than a day, shorter than forever.
+
+After spending too much time alone, I tried to find love again. I went out dancing and had my heart broken and sometimes found true warmth. But the more I looked, the more I felt like something really was wrong with me. It's not anyone's job to fix, and I am running out of steam.
+
+I don't have the answers, but here is as far as I've gotten.
+
+Some people reflect on life as the sum total of all our choices. I think it is something like that, I have made choices for which I wish I had another chance. And in addition, we are shaped by things we can't control. Part of me knows there is nothing truly wrong with me. I believe all people are worthy of compassion and understanding. To the extent that we can do so, we will find ourselves in a brighter world. It is difficult to do for someone else what we cannot do for ourselves. And some people just struggle to see themselves as worthy, maybe it is a part of us that is hard to change after some point. That is the power of grace, the compassion we recieve can sometimes kindle it inside. I have known a lot of grace, but my fire seems to go out too easily. 
