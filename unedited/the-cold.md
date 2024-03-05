@@ -4,7 +4,7 @@ When I was very young, I had a best friend who lived two doors down the street. 
 
 I remember he had an orange cat that would sometimes get lost but we would find it stuck inside the drain sewer outside their home, the kind that might make you think of scary clowns. One time I climbed in there too to see what it was like, and I remember thinking it was a lot better than I imagined looking at it from the outside. It was much brighter inside than I expected and could see how a cat might want to crawl in there.
 
-One day we were in his basement and there were these huge fluffy pink things, almost like a stack of fuzzy mattresses. They were big and soft and we had the idea that we could jump off something high on to them and not get hurt. I remember they were so soft to touch, and I also remember getting very itchy and starting to bleed a short time later and getting in trouble.
+One day we were in his basement and there were these huge fluffy pink things, almost like a stack of fuzzy mattresses. They were big and soft and we had the idea that we could jump off something high on to them and not get hurt. I remember they were so soft to touch, like cotton candy, and I also remember getting very itchy and starting to bleed a short time later and getting in trouble.
 
 My mom likes to tell this one story because she thinks it is cute. She tells about how one day, my friend's father called her up, or showed up at her door (I'm not sure). He said he found me and his son, we were sitting stark naked on the large rock at the end of our street, next to the main road, sunbathing or something. She laughs when she tells this story of brazen youthful innocence. I have asked her not to tell it anymore, but she often forgets when I ask her things like that.
 
