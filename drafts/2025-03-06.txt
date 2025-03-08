@@ -1,0 +1,12 @@
+It is the way of the explorer who is stranded somewhere to write a journal, for the sake of anyone who might find it, so that if this is their final chapter, it may be known. Perhaps they found themselves lost after thinking they knew the way pretty well. 
+
+I wrote a client to fetch Text Embeddings from Google rather than Open AI. Google's Embeddings are "free", although they use the content for training. Before that, I made a DropMenu on the front end. Over the last few days I've had a struggle finding the motivation, there are times that I feel like I've wandered in over my head. There's enough work to keep several people very busy and a wide range of focus. Working on the crawler provides a very different set of problems and benefits from very different knowledge/experience. 
+
+I love the individual puzzles in each area, but the need to keep changing focus so randomly makes it difficult. On the light end, it can feel like I am lost in a sandbox with only happy adventures in front of me. I have days like that. But days like today are heavier. Some days I'm not sure it is a sandbox.
+
+There are certain corners of my project that are more difficult, bring a higher rate of existential crises per hour. The front end is that corner for me, the one with the most unknowables. It is difficult to keep up with trends in UI, and there is no easy way of knowing whether people will value the thing I'm trying to make. I have a rough benchmark of when I should publish, when I find myself looking forward to checking it myself. That might not be a wise benchmark, considering the kind of news we can expect these days. 
+
+There is an assumption behind my project, that written news is uniquely valuable. I believe that it provides the best ratio of information to free thought. There is a buffet of information and it takes requires independent thinking to navigate, and from that independent thinking rises something precious, vital, sometimes. But we also live in a fast changing world that always has new opportunities, new demands. In circumstances like that, value is not something that can be taken for granted. 
+
+Print media and its digital counterpart seem to be on the decline, there are a lot of new items in the buffet of information. But an app can be niche. Most days, working on the project feels like a sandbox.
+
